@@ -1,4 +1,10 @@
-### Hi there 👋
+## Hi, I am Cyntia 👋😊
+
+I am a fresh graduate of biomedical engineering 👩‍🎓 at Sepuluh Nopember Institute of Technology, and starting to look for roles in working experiences 👩‍🏭.
+I’m highly motivated and hardworking individual, interested to meet the new people in order to gain experience and knowledge.
+My study in Biomedical Engineering ITS is focused on rehabilitation 🤾‍♀️ and assistive technology ⚙.
+I have developed a variety of competencies during college in the academic field, organizational, and events.<br/><br/>
+Being a fresher, I think I am very flexible and adaptive to learning new things🏫. I am sure I will be able to contribute something capable to the growth of the company. I am able to work well both in a team environment  as well as using own initiative.
 
 <!--
 **yulcyn/yulcyn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
